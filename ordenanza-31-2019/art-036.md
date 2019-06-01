@@ -1,0 +1,4 @@
+Art. 36º: El pago de gravámenes, recargos, multas e intereses deberá efectuarse en efectivo, en la oficina correspondiente, o mediante cheque o giro a la orden de la Municipalidad de Guaminí. Podrá adoptarse el sistema de cobradores domiciliarios en cuyo caso el Departamento Ejecutivo determinará las retribuciones correspondientes.
+La Municipalidad queda facultada para exigir cheque certificado, cuando el monto del gravamen que se abona lo justifique, y no se conozca debidamente la solvencia del deudor.
+En todos los casos se tomará como fecha de pago, el día que se efectúe el depósito, se tome el giro postal o bancario, se remita el cheque o valor postal o bancario por pieza certificada, siempre que estos valores puedan hacerse efectivo en el momento de su presentación al cobro.
+Retenciones

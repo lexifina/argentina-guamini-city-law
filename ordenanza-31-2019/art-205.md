@@ -1,0 +1,1 @@
+Art. 205º: Por la prestación de servicios asistenciales en el Hospital Municipal, Centros y Dispensarios de la Comuna, se abonarán las tasas establecidas en la Ordenanza Impositiva Anual, sin perjuicio del adicional por salud que se abone juntamente con otra u otras tasas de la presente ordenanza.

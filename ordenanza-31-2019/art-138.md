@@ -1,0 +1,2 @@
+Art. 138º: Se entiende como subproducto o derivado, aquel destinado a la alimentación, que haya sido extraído de animales vacunos, ovinos, porcinos, caprinos u otro animal comestible, cualquiera sea el nombre con que se expende por haber sido sometido a un tratamiento adecuado (salazón, ahumado, marinada, desecación, refrigeración, calentamiento) u otro procedimiento similar y en general todos los que como tales, establezca el Registro Bromatológico de la Provincia de Buenos Aires, cualquiera sea la forma o envase en que se expenda.
+Lugar y Forma de Pago

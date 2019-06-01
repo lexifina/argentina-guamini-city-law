@@ -1,0 +1,3 @@
+Art. 78º: Las solicitudes del permiso para la realización de espectáculos públicos, deberán ser presentadas, dentro de la semana anterior a la semana en que se efectúen.
+Para peticionar permisos para espectáculos, los recurrentes acreditarán su inscripción en esta Comuna en el caso de Entidades de Bien Público, o presentarán la habilitación correspondiente si se tratase de confiterías bailables, bares, etc.
+En los casos de espectáculos ocasionales, de diversión o entretenimiento, etc., de carácter ambulante, el responsable o representante deberá cumplimentar los requisitos establecidos con similar anticipación a la fecha de programación.

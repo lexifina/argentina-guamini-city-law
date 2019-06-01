@@ -1,0 +1,3 @@
+Art. 221º: Son Contribuyentes los usuarios que utilicen las instalaciones municipales.
+TÍTULO VIGÉSIMO PRIMERO
+TASA POR FACTIBILIDAD DE LOCALIZACIÓN Y HABILITACIÓN DE ANTENAS DE COMUNICACIÓN Y SUS ESTRUCTURAS PORTANTES

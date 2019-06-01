@@ -1,0 +1,2 @@
+Art. 106º: Los pagos se efectuarán de acuerdo al Calendario Impositivo, la liquidación de la tasa se hará efectiva, en base a declaraciones juradas que los Contribuyentes o responsables deberán presentar en forma, condición y plazo que se establezca en el Art. 108º. La falta de pago de la tasa como así también la falsedad de datos en la declaración jurada son causales de clausura por parte del municipio.
+Cese. Traslado. Transferencia. Cambio de Ramo

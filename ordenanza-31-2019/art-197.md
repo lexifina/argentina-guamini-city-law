@@ -1,0 +1,2 @@
+Art. 197º: Por la concesión de sepulturas, de enterratorios o arrendamientos de panteones, su transferencia excepto cuando se realicen por sucesión hereditaria, inhumaciones, exhumaciones, depósitos, traslados internos, reducciones u otros servicios o permisos que se efectuarán en el cementerio, se abonarán los derechos que en cada caso fije la Ordenanza Impositiva. No comprende la introducción al Partido de cadáveres o restos, como tampoco la utilización de medios de transporte y acompañamiento de los mismos (porta coronas, fúnebres, ambulancias, etc.).
+Forma de Pago
