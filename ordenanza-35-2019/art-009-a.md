@@ -1,0 +1,1 @@
+Art. 9º - A partir de la siguiente Ordenanza a prestar el servicio de control como a impartir las sanciones correspondientes tanto a la policía, los agentes de tránsito, a fin de concretar los controles dispuestos por la presente Ordenanza.
