@@ -1,0 +1,2 @@
+Art. 11º: Los sucesores a título particular en lo activo y pasivo de empresas, explotaciones o bienes que constituyan el objeto de hechos imponibles, servicios retribuíbles o beneficios que originen contribuciones responderán solidariamente con el Contribuyente y demás responsables por el pago de tasas, derechos y contribuciones, multas e intereses, salvo que la Municipalidad hubiere expedido la correspondiente certificación de no adeudarse gravámenes.
+Contribuyentes solidarios

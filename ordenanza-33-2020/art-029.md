@@ -1,0 +1,2 @@
+Art. 29º: La determinación sobre base cierta o presunta, corresponderá cuando el Contribuyente o responsable suministre todos los elementos probatorios o relacionados con su Situación fiscal, de conformidad con lo establecido en el Art. 19º de esta Ordenanza. En caso contrario corresponderá la determinación sobre la base presunta, que efectuará considerando todos los hechos y circunstancias que permitan inducir la existencia y monto de la obligación
+Índices o Coeficientes

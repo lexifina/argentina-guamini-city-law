@@ -1,0 +1,2 @@
+Art. 76º: Las entidades o personas que alquilen sus locales a terceros para reuniones sociales, bailables u otros espectáculos, deberán presentar mensualmente dentro de los primeros cinco (5) días de cada mes, la nómina de las fechas a utilizar, indicando características de cada reunión y datos de identificación de los usuarios. Asimismo serán ante la Comuna responsables de cualquier controversia e incumplimiento que pudiera sustanciarse en el desarrollo del respectivo espectáculo.
+Contralor. Agentes de retención

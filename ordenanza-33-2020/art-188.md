@@ -1,0 +1,1 @@
+Art. 188º: Sin perjuicio de lo dispuesto en los artículos anteriores, toda transacción que se efectuare con ganado o cuero, estará sujeto a la extracción o archivo de los documentos correspondientes. La vigencia de las guías de traslado será establecida en el Código Rural de la Provincia de Buenos Aires y su reglamentación.

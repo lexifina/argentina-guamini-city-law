@@ -1,0 +1,1 @@
+Art. 98º: El pedido de habilitación deberá realizarse previamente a la iniciación de las actividades de que se trate aún cuando existieran exenciones de pago de los derechos previstos en la presente Ordenanza, sus reglamentaciones o Leyes Especiales.

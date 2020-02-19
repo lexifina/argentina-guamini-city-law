@@ -1,0 +1,5 @@
+Art. 109º: Está constituido por la publicidad o propaganda que se realice en la vía pública o con trascendencia a esta, así como la que se efectúa en el interior de locales destinados al público, cines, teatros, comercios, campos de deportes y demás sitios de acceso público. También se encuentra comprendido el medio de difusión oral previamente autorizado.
+No Comprende
+La publicidad y propaganda con fines sociales, recreativos, culturales, asistenciales y benéficos.-
+La publicidad de las actividades profesionales realizadas en un todo de acuerdo con los cuerpos legales que rijan la actividad respectiva.-
+Autorización Previa
