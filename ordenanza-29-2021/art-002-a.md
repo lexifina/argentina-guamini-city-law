@@ -1,0 +1,1 @@
+Art. 2º - A fin de garantizar el cumplimiento de las obligaciones asumidas en el convenio enfocado en el artículo 1 autorizase al PE a afianzar las prestaciones a su cargo mediante los fondos que percibe en concepto de coparticipación. -
