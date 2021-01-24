@@ -1,0 +1,7 @@
+Art. 3º - A esos efectos el Departamento Ejecutivo tendrá a su cargo:
+a) Coordinar el Programa de Fortalecimiento de los Clubes Deportivos.
+b) Facilitar todo trámite que correspondan a Clubes Deportivos que cumplan con los requisitos enunciados.
+c) Centralizar la totalidad de los trámites administrativos que deban realizar las entidades mencionadas ante la administración municipal, tales como: Solicitud de permisos para obras, habilitaciones cobros mensuales o subsidios, beneficios, suscripción de convenios, etc., por lo que las presentaciones de tal tipo efectuadas ante las Áreas Municipales o cualquier otra dependencia municipal tendrán como primer destino el Área de atención exclusiva a clubes.
+d) Ingresadas las notas se registrarán en orden cronológico por número y fecha, con las constancias del destino de su derivación, si fuera necesario, y utilizando el sistema informático idóneo para tener una precisa localización futura del asunto para la ayuda, si correspondiera, información, seguimiento y control.
+e) Detectadas demoras en el trámite se requerirá, en su caso, las causas para colaborar en su solución.
+f) Controlar el cumplimiento por parte de los clubes de los compromisos asumidos con la administración pública en general, contraprestaciones pactadas y derivadas de normas vigentes, el destino del aporte de la presente ordenanza y/o subsidios públicos que se les pudieran otorgar.
