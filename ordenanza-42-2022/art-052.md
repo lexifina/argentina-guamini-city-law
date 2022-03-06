@@ -1,0 +1,1 @@
+ARTÍCULO 52°: El peticionante deberá acreditar certificado de discapacidad provincial o nacional; Suscribir una Declaración Jurada de que su situación personal le permite encuadrarse en el beneficio y presentar documentación probatoria del derecho invocado sobre el bien gravado por el tributo.

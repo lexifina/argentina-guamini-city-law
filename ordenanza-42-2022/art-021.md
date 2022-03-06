@@ -1,0 +1,1 @@
+Artículo 21º:Por disposición de lo sancionado por la Ley Nº 13.010 y Decreto Nº 226 de la Provincia de Buenos Aires, el municipio cobrará la patente de los automotores que transfiera la Provincia para los modelos y años que disponga. La escala de valuación, alícuota y montos mínimos serán los que fije la Provincia de Buenos Aires según su Ley Impositiva Vigente.
