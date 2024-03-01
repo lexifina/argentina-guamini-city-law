@@ -1,0 +1,2 @@
+Art. 180º: Por los servicios de expedición y visado de certificados en operaciones de semovientes o cueros, por el permiso para marcar y contramarcar, señalar y contraseñalar, por el permiso de remisión a feria, por la inscripción de boletos de marcas y señales nuevas y renovadas, o por la toma de razón de su transferencia, de sus duplicados, y de la rectificación, cambio o adicionales, se abonará la tasa que para cada caso fije la Ordenanza Impositiva.
+Base Imponible

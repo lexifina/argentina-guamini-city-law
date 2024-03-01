@@ -1,0 +1,1 @@
+Art. 229º: Son responsables de esta tasa y estarán obligados al pago, las personas físicas o jurídicas permisionarias de los “Sitios Generadores” los propietarios y/o administradores de las antenas y sus estructuras portantes y/o los propietarios del predio donde están instaladas las mismas de manera solidaria.

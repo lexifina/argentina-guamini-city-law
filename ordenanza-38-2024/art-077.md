@@ -1,0 +1,2 @@
+Art.77: Las entidades o personas que realicen reuniones danzantes u otros actos similares, deberán solicitar su inscripción. Las actividades estacionales deberán efectuar un depósito previo de garantía sujeto a la reglamentación vigente. Actuarán asimismo como agentes de retención en forma solidaria de los derechos que correspondan a los espectadores en casos, formas y condiciones que establezca la Ordenanza Impositiva, sin perjuicio del pago de los derechos correspondientes por cuenta propia.
+Deberes

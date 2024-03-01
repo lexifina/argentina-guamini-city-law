@@ -1,0 +1,1 @@
+Art. 156º: Los derechos y demás tasas por construcción, modificación e introducción de mejoras que afecten el bien deberán abonarse previo a la presentación definitiva de la carpeta de construcción reglamentaria. Dicho pago no implica ni autoriza la iniciación de la obra.

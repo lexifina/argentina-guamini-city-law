@@ -1,0 +1,2 @@
+Art. 69º: En las notificaciones realizadas personalmente se dejará constancia en acta de la diligencia practicada en el lugar, día y hora en que se efectuó, exigiendo la firma del interesado, si este no supiera o no pudiese firmar podrá hacerlo a su cargo un testigo.
+En caso de negativa a firmar, se dejará constancia de ello, firmando el notificador bajo su responsabilidad. Las actas labradas harán fe mientras no se demuestre su falsedad.

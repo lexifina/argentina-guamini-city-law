@@ -1,0 +1,2 @@
+Art.51º: En los recursos de nulidad, revocatoria o aclaratoria los recurrentes no podrán presentar nuevas pruebas, salvo aquellas que se relacionen con hechos o documentos posteriores a la interposición del recurso de reconsideración pero sí nuevos argumentos con el fin de impugnar los fundamentos de la resolución recurrida.
+Medidas para Mejor Proveer

@@ -1,0 +1,1 @@
+Art. 230º: Se establece la presente Tasa de Salud para la financiación de los gastos de los Hospitales Municipales, Unidades Sanitarias, Programas de prevención y cualquier otro gasto relacionado con el funcionamiento del Sistema de Salud del Distrito.

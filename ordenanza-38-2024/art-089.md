@@ -1,0 +1,2 @@
+Art. 89º: Por los servicios de inspección dirigidos a verificar el cumplimiento de los requisitos exigidos para la habilitación de locales, establecimientos u oficinas destinadas a comercios, industrias y actividades asimilables a tales, aun cuando se trate de servicios públicos, se abonará por única vez la tasa que al efecto se establezca.
+Los titulares de farmacias o veterinarias, deberán presentar las respectivas constancias de habilitación otorgadas por el organismo competente, debiendo abonar el derecho por los rubros anexos.
