@@ -1,0 +1,1 @@
+ARTÍCULO 2: IDENTIFICACIÓN INDISTINTA DE LAS PARTES. A los efectos del presente pliego puede ser llamada: La Municipalidad, La Municipalidad de Guaminí, La Licitante, La Concedente. El contratista puede ser llamado: el Oferente, el Adjudicatario, La Contratista, El Concesionario.
