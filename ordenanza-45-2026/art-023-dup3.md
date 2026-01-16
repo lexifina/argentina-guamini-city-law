@@ -1,0 +1,1 @@
+Art. 23º: Los Escribanos y otros responsables que intervengan en la transferencia de bienes, negocios o cualquier otro acto u operación relacionado con obligaciones, con certificados de Libre Deuda extendidos por la Municipalidad, deberán aplicar en todos los casos las disposiciones de la Ley 7438.

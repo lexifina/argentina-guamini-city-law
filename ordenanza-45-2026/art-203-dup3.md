@@ -1,0 +1,1 @@
+Art. 203º: En los lotes destinados a sepulturas queda prohibido la construcción de nichos, nicheras o bóvedas, como así también en los nichos la realización de modificaciones que tiendan a variar su capacidad.

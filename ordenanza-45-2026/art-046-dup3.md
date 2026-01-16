@@ -1,0 +1,1 @@
+Art. 46º: Pendiente del recurso a solicitud del Contribuyente o responsable podrá disponerse en cualquier momento, de la liberación condicional de la obligación, siempre que se hubiere afianzado debidamente el pago de la deuda cuestionada.

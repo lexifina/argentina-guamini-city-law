@@ -1,0 +1,1 @@
+Art. 213º: El departamento Ejecutivo, podrá ordenar la revisión de las pesas y medidas, cuantas veces lo crea conveniente, pero la tasa se cobrará, de acuerdo a lo establecido en la Ordenanza Impositiva Anual.

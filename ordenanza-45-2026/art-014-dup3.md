@@ -1,0 +1,3 @@
+Art. 14º: El domicilio fiscal de los Contribuyentes y demás responsables a los efectos de sus obligaciones hacia la Municipalidad, tratándose de personas de existencia visible, es el lugar donde estas residen habitualmente. Tratándose de otros obligados, en el lugar en que se halle el centro de sus actividades.
+Este domicilio deberá consignarse en las declaraciones y escritos que se presenten a la Municipalidad. Todo cambio del mismo deberá ser comunicado dentro de los 15 quince días de efectuado, en su defecto se reputará subsistente para todos los efectos administrativos o judiciales, el último consignado, sin perjuicio de las sanciones que esta Ordenanza Fiscal establezca por la infracción de ese deber.
+Domicilio Especial

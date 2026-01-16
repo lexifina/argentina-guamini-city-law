@@ -1,0 +1,3 @@
+Art. 54º: Los Contribuyentes o responsables podrán interponer ante el Departamento Ejecutivo, demanda de repetición de tasas, derechos y demás contribuciones, recargos, intereses y multas que accedan a esas obligaciones, cuando considere que el pago hubiere sido indebido o sin causa.
+La promoción de esta demanda, es condición previa e ineludible para iniciar la acción judicial correspondiente. En el caso que la demanda fuera promovida por agentes de retención, estos deberán presentar la nómina de los Contribuyentes a quienes se efectuará la devolución de los importes cuestionados, salvo que acrediten autorización para su cobro.
+Demanda de Repetición. Determinación

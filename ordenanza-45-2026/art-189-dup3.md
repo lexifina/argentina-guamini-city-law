@@ -1,0 +1,1 @@
+Art. 189º: Las guías provenientes de otros Partidos o Provincias deberán ser archivadas en el término de 30 días de expedidas las mismas, pasado dicho plazo, se abonarán con multa del 100% del valor de las mismas.

@@ -1,0 +1,3 @@
+Art 45º: La interposición del recurso de reconsideración, suspende la obligación de pago, y la ejecución fiscal de los importes no aceptados, pero no interrumpe la aplicación de la actualización y recargo que prescriben los artículos correspondientes de la Ordenanza.
+A tal efecto, será requisito para interponer el recurso de reconsideración, que el Contribuyente o Responsable, regularice su situación fiscal.
+En cuanto a los importes que se reclamen, y respecto a los cuales preste conformidad, este requisito no será exigible, cuando en el recurso se discuta la calidad del Contribuyente o Responsable.

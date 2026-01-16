@@ -1,0 +1,1 @@
+Art. 239º: En los casos en que el inmueble haya sido objeto de imposición del recobro de la obra que genera la valorización del inmueble, el mismo estará exceptuado del presente tributo.

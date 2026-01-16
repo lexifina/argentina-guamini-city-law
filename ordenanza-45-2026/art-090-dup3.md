@@ -1,0 +1,2 @@
+Art. 90º: La tasa será proporcional al monto del activo fijo, (bienes de uso), afectado a la actividad, actualizados a la fecha de la solicitud, excluídos los inmuebles y rodados, pero en ningún caso será inferior al importe mínimo previsto para las distintas categorías que fije la Ordenanza Impositiva. Las habilitaciones que se soliciten con posterioridad a la fecha de iniciación de actividades, abonarán los derechos vigentes de presentación.
+Ampliaciones. Base Imponible

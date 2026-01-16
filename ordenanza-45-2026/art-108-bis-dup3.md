@@ -1,0 +1,1 @@
+Art. 108º bis: La habilitación de comercios e industrias deberá extenderse dentro de los cuarenta (40) días de cumplimentado por el Contribuyente los requisitos para la misma, pudiendo en este período y de acuerdo a la naturaleza del hecho imponible otorgarse permiso provisorio de habilitación en un 70% de los requisitos.

@@ -1,0 +1,1 @@
+Art. 160º: Los derechos se harán efectivos en el tiempo y forma que establezca la Ordenanza Impositiva.

@@ -1,0 +1,1 @@
+Art. 123º: Cuando la actividad se ejercite sin previa autorización municipal, los representantes se harán pasibles de las penalidades por contravención que en cada caso corresponda, sin perjuicio del pago correspondiente y de las asesorías fiscales.

@@ -1,0 +1,1 @@
+Art. 142º: Los proveedores deberán inscribirse antes de iniciar sus actividades, considerándose clandestina la introducción o matanza que practiquen los no matriculados, haciéndose pasible de las penalidades que establezca esta Ordenanza.

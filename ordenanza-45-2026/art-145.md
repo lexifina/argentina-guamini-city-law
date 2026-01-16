@@ -1,0 +1,1 @@
+Art. 145º: Los carniceros, comerciantes o tenedores de carnes, subproductos o derivados, están obligados a exigir de sus proveedores, en el momento de recibir la mercadería, entrega de la factura de compra, debidamente sellada por la Autoridad Municipal que deberán conservar en su poder.

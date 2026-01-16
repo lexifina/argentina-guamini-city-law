@@ -1,0 +1,2 @@
+Art. 113º: Los derechos se harán efectivos dentro del plazo establecido en el Calendario Impositivo Anual, mediante la presentación de la Declaración Jurada correspondiente, donde se indicará metraje, ubicación, características de publicidad a colocar o renovable. Los contribuyentes continuarán siendo responsables de los gravámenes, si no hacen saber su retiro dentro de los primeros quince (15) días del mes de enero.-
+Publicidad sin permiso

@@ -1,0 +1,2 @@
+Art.30º: Sin perjuicio de lo previsto en el artículo anterior, la Municipalidad podrá fijar índices o coeficientes para reglar las determinaciones de oficio, con carácter general o especial, en relación con las actividades u operaciones de los Contribuyentes o sectores de los mismos, como asimismo, pautas que permitan la determinación de los montos imponibles
+Poderes y Facultades de la Municipalidad

@@ -1,0 +1,1 @@
+Art. 164º: En los casos de ocupación o uso autorizado, la falta de pago dará tugar a la caducidad del permiso y en su caso el secuestro de los elementos colocados en la vía pública, los que no serán restituídos hasta tanto se dé cumplimiento a las obligaciones, multas y gastos originados.

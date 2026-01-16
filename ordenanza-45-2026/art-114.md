@@ -1,0 +1,2 @@
+Art.114º: En los casos en que la publicidad o propaganda, se efectúe sin la correspondiente. autorización o con modificaciones a lo aprobado o en lugar distinto a lo autorizado, los responsables se harán pasibles de las penalidades a que hubiere lugar, sin perjuicio del pago de los derechos que correspondiere, pudiendo el Departamento Ejecutivo, disponer el retiro de la propaganda, con cargo a los responsables.
+Aclaraciones

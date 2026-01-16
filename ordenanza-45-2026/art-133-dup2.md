@@ -1,0 +1,1 @@
+Art. 133º: La carne, sus derivados y demás productos de origen animal, faenados por terceros en mataderos, frigoríficos y establecimientos radicados en el Partido, no podrán ser retirados de los mismos, sin haberse previamente abonado las tasas determinadas en este Capítulo, las firmas responsables actuarán como agentes de retención de los importes respectivos.

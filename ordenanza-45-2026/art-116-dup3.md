@@ -1,0 +1,2 @@
+Art. 116º: Los permisos renovables, cuya baja o retiro no sea comunicada antes del día 15 de Enero, se considerará subsistente, debiendo ser satisfechos los derechos del plazo correspondiente, caso contrario se considerarán revocados, no obstante, persiste la obligación de los responsables de completar el pago hasta la fecha que la publicidad o propaganda sea borrada o retirada y de satisfacer los recargos y multas en caso correspondan.
+Restitución de Elementos

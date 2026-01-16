@@ -1,0 +1,1 @@
+Art. 80º: La suspensión de espectáculos públicos deberá ser comunicada dentro de las cuarenta y ocho (48) horas a la oficina pertinente, la cual podrá revalidar el permiso concedido para la realización de los mismos en un plazo no mayor de quince días de la fecha anteriormente programada.

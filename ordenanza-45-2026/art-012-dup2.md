@@ -1,0 +1,1 @@
+Art. 12º: Cuando un mismo hecho imponible sea realizado por dos o más personas, todas se considerarán contribuyentes, por igual y solidariamente obligados al pago de gravámenes, salvo el derecho de la Municipalidad a dividir la obligación a cargo de cada una de ellas.

@@ -1,0 +1,1 @@
+Art. 218º: Si perjuicio de lo establecido por el decreto Nº 1083, del Ministerio de Asuntos Agrarios, se abonará por kilogramo de pescado extraído de las lagunas del Partido, el importe que al respecto fije la Ordenanza Impositiva vigente

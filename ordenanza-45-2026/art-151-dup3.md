@@ -1,0 +1,4 @@
+Art. 151º: No procederá a requerir los derechos en todas aquellas actuaciones en los que no se solicite el pronunciamiento o cuando se refieran a la presentación de servicio contemplados especialmente en la presente Ordenanza, ni en los procedimientos seguidos para la presentación y fiscalización de las Declaraciones Juradas o cuando se requiera de la Municipalidad el pago de facturas o cuentas.
+Cuando la Municipalidad actúe de oficio, los derechos estarán a cargo de las personas o entidad contra la cual se haya deducido el procedimiento, siempre que la circunstancia que los originara, resultara acreditada.
+Las libretas sanitarias, tendrán una validez de treinta (30) días, para ser presentadas en la Dirección de Bromatología, contados a partir de la fecha su adquisición en la Dirección de Recaudación y Ganadería.
+Subasta de Lotes

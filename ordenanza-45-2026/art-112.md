@@ -1,0 +1,2 @@
+Art. 112º: Para la determinación de los derechos, se utilizarán las unidades, modalidades y características establecidas en la Ordenanza Impositiva Anual. Dentro de un mismo período, todo cartel que vuelva a colocarse o aviso que vuelva a pintarse, anunciando una nueva publicidad, distinta que aquella por la cual deba pagar, o haya pagado el derecho anual, o que se le agregue otra leyenda que implique una nueva promoción, será considerado como publicidad nueva y abonará derecho como tal.-
+Forma y Término de Pago

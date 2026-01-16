@@ -1,0 +1,1 @@
+Art.210º: Están obligados al pago de estas tasas, los titulares de las casas de comercio, industrias, vendedores ambulantes o cualquier persona que por su profesión o industria haga uso del sistema decimal o de pesas y medidas en sus relaciones con el público o para usos internos.
