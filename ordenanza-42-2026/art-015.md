@@ -1,0 +1,1 @@
+ARTÍCULO 15º: Las parcelas con dos o más frentes estarán sujetas al pago del 50% de la tasa que corresponda siempre que las mismas no comprendan más de una unidad funcional de vivienda, caso contrario abonarán la totalidad de la tasa correspondiente. Este artículo no será de aplicación para los inmuebles destinados a la industria, el comercio o las actividades similares.

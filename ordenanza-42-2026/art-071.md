@@ -1,0 +1,1 @@
+ARTÍCULO 71°: A partir de la presente, todas tasas podrán contar con más de un vencimiento, donde el contribuyente que tenga esa tasa al día, se verá beneficiado con una bonificación por buen cumplimiento que establecerá el Departamento Ejecutivo.

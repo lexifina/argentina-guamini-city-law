@@ -1,0 +1,1 @@
+ARTÍCULO 47°:Exímase a las entidades BOMBEROS VOLUNTARIOS, del Distrito de Guaminí, en forma total, del pago de Impuestos y Tributos Municipales incluidos los previstos en el artículo 17 y concordantes (Tasa Por Alumbrado Público), por el Ejercicio Fiscal 2025. Ello previo acreditación de titularidad del inmueble objeto de exención.

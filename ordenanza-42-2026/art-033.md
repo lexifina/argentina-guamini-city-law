@@ -1,0 +1,25 @@
+ARTÍCULO 33º:Uso de lagunas del partido:
+1.- Por extracción de peces de las lagunas del partido, por kilo, de acuerdo a lo que reglamente el departamento ejecutivo.
+2.- Por licencias de pesca, derechos y rol de navegación, etc., los importes se fijarán de acuerdo a lo establecido por el Ministerio de Asuntos Agrarios de la Provincia de Buenos Aires, o en su defecto el Departamento Ejecutivo si correspondiere ad-referéndum del Honorable Concejo Deliberante.
+3.- Por derecho de pesca, por caña, por día se fijará por departamento ejecutivo.
+4.- Por alevinos de pejerrey u otras especies, se fijará por departamento ejecutivo.
+5.- Por km. recorrido para traslado del alevino, se fijará por departamento ejecutivo.
+6.- Por servicio de siembra de alevinos u otras especies, incluyendo asesoramiento del profesional a cargo, se fijará por departamento ejecutivo.
+7- Por servicio de bajada de lancha Municipal, se fijara por Departamento Ejecutivo.
+Los valores del presente artículo, serán fijados por el Departamento Ejecutivo, ad-referéndum del Honorable Concejo Deliberante.
+Otros servicios especiales:
+En los balnearios que este municipio presenta en las distintas lagunas del partido y que presten servicios en el suministro de energía eléctrica o agua potable, serán de aplicación las siguientes tasas:
+1.- Agua Corriente:
+- Por derecho de conexión domiciliaria y/o establecimiento comercial por unidad $ 77.600
+- Por mantenimiento de redes y equipos, se abonará bimestralmente $ 10.400
+- Por consumo de agua, cada 100 lts. $ 230
+2.- Cloacas:
+- Por derecho de conexión domiciliaria 1° servicio $ 60.200
+- Por derecho de conexión domiciliaria 2° servicio quedará sujeto a cálculos actuales.
+- Por el servicio de cloacas, se abonará bimestralmente $ 12.600
+3.- Energía Eléctrica:
+- Por derecho de conexión, domiciliaria y/o comercios,cada una $5.200
+- Por mantenimiento de redes y elementos, se abonará bimestralmente $ 3.500
+- Por consumo de energía, por KW. Vigente para EDES S.A., al momento del efectivo pago.
+El Departamento Ejecutivo queda facultado a realizar los ajustes que en la materia fijen las Autoridades Nacionales o Provinciales, incrementando o disminuyendo los porcentajes que se autoricen a partir de la fecha que éstas, entren en vigencia.
+DERECHO DE USO DE PLAYAS Y RIBERAS Y VENTA AMBULANTE

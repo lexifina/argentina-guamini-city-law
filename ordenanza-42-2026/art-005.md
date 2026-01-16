@@ -1,0 +1,29 @@
+ARTÍCULO 5º:Los derechos del presente Capítulo, se cobrarán de acuerdo con la unidad que se establece para cada tipo o clase de propaganda en los artículos siguientes.
+Publicidad en la vía pública o visible a ella
+1) Por cada anuncio colocado en frente de comercios, vidrieras o cristales de comercios, o visibles desde la vía pública:
+*Avisos simples, calcos, afiches, por m2 o fracción por año o fracción…….……..$ 0,00
+*Bandera por m2 o fracción por año o fracción……………………………………$ 0,00
+*Los avisos de propaganda adosados a la pared o muro, que avancen sobre la línea municipal, por m2 o fracción, por año o fracción y por cada faz…………………………………..$ 0,00.-
+*Si los avisos se limitan a consignar el nombre del propietario del establecimiento, actividad, domicilio y teléfono, pagarán por m2 o fracción, por año o fracción……………...$ 0,00.-
+*En columnas, por m2 o fracción, por cada faz por año o fracción…………...........$ 0,00.-
+2) En carteleras:
+*Por propaganda en elementos diseñados para la colocación de carteles, afiches y/u otro tipo de anuncios periódicos en la vía públicaen zona urbana, tributarán por metro cuadrado o fracción, por año……………………………………….........................$ 13.200.-
+3) En Proyecciones:
+*Por publicidad y/o propaganda en pantallas LCD, pantallas LEDs o similares como así cualquier otro tipo de publicidad dinámica o electrónica y por año y m2……$ 33.400
+4) Remates o actividades similares:
+*Por cada bandeja de remate o venta, por día……………………$ 1.070.-
+5) Los anuncios, artefactos o estructuras publicitarias, ocupados o no:
+*En columnas instaladas sobre aceras o calzadas, o terrazas, por m2 o fracción, por cada faz por año o fracción……………………………………………………………………$ 0,00.-
+*En artefactos, de utilidad pública, instalados sobre aceras, por m2 o fracción, por cada faz, por año o fracción……………………………………………………………………$ 0,00.-
+6) Por la instalación de anuncios publicitarios de cualquier tipo en rutas o visibles desde ellas por m2 o fracción por año o fracción(Incluido terrenos privados)…. $ 97.060.-
+7) Venta de publicidad en eventos Organizados por la Municipalidad:
+El departamento Ejecutivo queda facultado para fijar los valores tanto en Publicidad por proyecciones o por Estática, por decreto y Ad-Referéndum del HCD.
+B) VEHÍCULOS CON PUBLICIDAD
+1) Por los anuncios, letreros o carteles colocados en vehículos se pagará por unidad:
+*Vehículo de transporte de carga o reparto por año o fracción por m2 o fracción..$0,00.-
+*Las motos, motonetas, moto furgones y vehículos de tracción a sangre, por año o fracción por m2 o fracción……………………………………………………………………..$ 0,00
+2) Los transportes de pasajeros, por cada anuncio, por año o fracción por m2 o fracción……………………………………………………………………………….$ 0,00.-
+3) Los vehículos destinados a publicidad, con prohibición de la sonora, por día o fracción.
+………………………………………………………………………………………..$ 0,00.-
+C) PUBLICIDAD DE ESPECTÁCULOS
+Las carteleras para espectáculos públicos, colocados en el frente o entrada de los locales de exhibición, por m2 o fracción, por año ……………………………………………...$ 0,00.-

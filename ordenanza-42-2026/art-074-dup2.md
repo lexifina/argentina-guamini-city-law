@@ -1,0 +1,2 @@
+ARTÍCULO 74º:Atento al proceso inflacionario que transita el país, siendo indispensable mantener todas las tasas, derechos y contribuciones de la presente Ordenanza actualizadas para asegurar el normal funcionamiento del Municipio, se modificaran las mismas de forma trimestral.
+Los valores fijados por el presente artículo serán fijados por el Departamento Ejecutivo Ad Referéndum del Honorable Concejo Deliberante mediante un sistema de actualización especificado para tal fin.

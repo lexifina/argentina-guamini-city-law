@@ -1,0 +1,1 @@
+Artículo 72°:Facultase al Departamento Ejecutivo a establecer una bonificación de hasta un 10% para todas las tasas y contribuciones de la presente Ordenanza adicional al Artículo Nº 38 si correspondiere, para los contribuyentes que abonen de contado todo el año en curso en forma anticipada, mediante el pago de la cuota anual.

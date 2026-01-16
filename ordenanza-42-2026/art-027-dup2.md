@@ -1,0 +1,1 @@
+Artículo 27º:El arrendamiento de sepulturas que haga la Municipalidad para ser destinado a la construcción de bóvedas o nicheras particulares podrá efectuarse mediante el sistema implementado por la Ordenanza Fiscal cuando lo decida el Departamento Ejecutivo.-

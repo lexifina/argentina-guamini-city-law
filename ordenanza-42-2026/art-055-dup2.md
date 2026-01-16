@@ -1,0 +1,1 @@
+ARTÍCULO 55°:El peticionante deberá suscribir una Declaración Jurada de que su situación personal le permite encuadrarse en el beneficio y presentar documentación probatoria sobre composición de su grupo familiar, documentación que pruebe su ingreso.

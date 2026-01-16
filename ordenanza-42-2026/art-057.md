@@ -1,0 +1,2 @@
+ARTÍCULO 57°: Una vez reunidos los recaudos de los Artículos anteriores el Departamento Ejecutivo deberá constatar la veracidad mediante Asistentes Sociales a su cargo. Quedarán exceptuadas de los beneficios establecidos en el presente Capítulo todas aquellas viviendas en las que funcionen un Local Comercial y/u Oficina con atención al público.
+PEDIDOS DE INFORMES DERIVADOS DE TRÁMITES JUDICIALES Y/O ADMINISTRATIVOS INICIADOS POR ENTIDADES PROVINCIALES

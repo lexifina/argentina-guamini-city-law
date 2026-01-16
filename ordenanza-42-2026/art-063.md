@@ -1,0 +1,1 @@
+ARTÍCULO 63°:Quedan eximidas de la tasa del Fondo Benéfico de Rifas previsto en la Ordenanza N° 57/2006 todas aquellas rifas con premios mediante sorteos que sean emitidas por las entidades sin fines de lucro domiciliadas en el Partido de Guaminí.

@@ -1,0 +1,1 @@
+ARTÍCULO 73°:Fijar la tasa de interés a abonar por pago fuera de término de las tasas y/o contribuciones por servicios municipales, en el cinco por ciento mensual (5%), aplicable a partir de la promulgación de la presente.

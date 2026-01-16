@@ -1,0 +1,1 @@
+ARTÍCULO 75º: Los importes de la presente Ordenanza Impositiva, comenzarán a regir a partir del día inmediato siguiente a la promulgación de la presente, por parte del Departamento Ejecutivo.

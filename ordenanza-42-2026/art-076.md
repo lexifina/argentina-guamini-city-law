@@ -1,0 +1,1 @@
+ARTÍCULO 76º: Facultase el Departamento Ejecutivo a efectuar las adecuaciones tributarias que estime convenientes, cuando no exista disposición legal al respecto, ad-referéndum del Honorable Concejo Deliberante.
