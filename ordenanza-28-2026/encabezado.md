@@ -1,0 +1,14 @@
+Ordenanza Nº28
+Ordenanza Nº 28
+Guaminí, 24/06/2026
+La conformación de la Asociación Civil “Amigos de Victorino de la Plaza”, las actividades de recuperación, preservación y puesta en valor del patrimonio local que dicha entidad viene desarrollando, y;
+Que el Partido de Guaminí presenta una configuración territorial caracterizada por una localidad cabecera, centros urbanos como Casbas, Laguna Alsina, Garré y Arroyo Venado, y una red parajes rurales cuyo origen se vincula directamente con la expansión ferroviaria y el desarrollo agropecuario;
+Que, en ese marco, el paraje Victorino de la Plaza tuvo su origen a partir de la instalación de la estación del Ferrocarril Compañía General Buenos Aires a comienzos del siglo XX, constituyéndose en un nodo de desarrollo local que llegó a contar con infraestructura comunitaria relevante -escuela, club, capilla y viviendas ferroviarias-;
+Que la clausura del servicio ferroviario dispuesta por el Estado Nacional en el año 1977 produjo un proceso de retracción demográfica y deterioro progresivo de dicho asentamiento, subsistiendo en la actualidad un conjunto de edificaciones y espacios que constituyen testimonios materiales de alto valor histórico, social y cultural;
+Que tales bienes -entre ellos la ex estación ferroviaria, el club social, la capilla, la escuela rural y construcciones vinculadas al antiguo sistema ferroviario- integran un patrimonio identitario que remite a la memoria colectiva del distrito y de numerosas familias vinculadas al lugar;
+Que la Asociación Civil Amigos de Victorino de la Plaza, integrada por residentes y exresidentes, ha asumido un rol activo en la recuperación de dichos espacios, promoviendo iniciativas de restauración, resignificación cultural y apertura comunitaria, incluyendo la proyección de un espacio museístico y la incorporación de intervenciones artísticas contemporáneas;
+Que el asociativismo local, en contextos rurales, constituye un instrumento idóneo para los procesos de patrimonialización y desarrollo territorial, favoreciendo la articulación entre memoria, identidad, turismo rural y dinamización económica, conforme surge de estudios recientes sobre la materia;
+Que existen antecedentes normativos en el ámbito municipal —en particular la Ordenanza Nº 39/2012— que evidencian la voluntad institucional de preservar y destinar inmuebles del sector a fines sociales, culturales y comunitarios, consolidando así un marco jurídico propicio para nuevas acciones de valorización;
+Que, en consecuencia, resulta oportuno y conveniente que este Honorable Concejo Deliberante reconozca formalmente el valor patrimonial del paraje, acompañe las iniciativas comunitarias en curso y promueva políticas públicas orientadas a su preservación, uso social y eventual aprovechamiento turístico;
+POR ELLO: EL HONORABLE CONCEJO DELIBERANTE DE GUAMINÍ, EN USO DE LAS FACULTADES QUE LE SON PROPIAS, SANCIONA LA SIGUIENTE,-
+ORDENANZA
