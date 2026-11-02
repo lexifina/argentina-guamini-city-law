@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-guamini",
+  "code": "AR-B-GUAMINI",
+  "name": "Guaminí",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-guamini-city-law",
+  "build": "built: municipal ordinances (190 ordinances, 190 versions) from https://sibom.slyt.gba.gob.ar/cities/60",
+  "language": "es",
+  "sources": 1
+}
